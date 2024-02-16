@@ -2,7 +2,10 @@
 ------------------------------------------------
 # Info 📝:
 
-This original source was made by @StrawberryUD and i cra--s working wothout one :()
+This original source was made by @StrawberryUD and i cracked it :()
+
+You need a new driver so buy one or get one because its not working without one :(
+
 The original driver was shitty and as detected as Extreme Injector in Fortnite or a Roblox Hack in CSGO
 ---------------------------------------------------
 # DISCLAIMER
